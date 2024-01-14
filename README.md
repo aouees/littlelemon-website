@@ -1,4 +1,4 @@
-![Screenshot from 2024-01-14 18-07-50](https://github.com/aouees/littlelemon-website/assets/56609281/8f4b5dfc-08ae-4f06-9d0d-d443b26b8c67)![Screenshot from 2024-01-14 18-07-58](https://github.com/aouees/littlelemon-website/assets/56609281/618b3f9d-3404-4c37-b9be-aad9d2b4cce0)![Screenshot from 2024-01-14 18-06-31](https://github.com/aouees/littlelemon-website/assets/56609281/7e95a402-ca84-41f7-a9ad-69cf6d2462aa)
+![Screenshot from 2024-01-14 18-06-31](https://github.com/aouees/littlelemon-website/assets/56609281/7e95a402-ca84-41f7-a9ad-69cf6d2462aa)
 
 ![Screenshot from 2024-01-14 18-07-50](https://github.com/aouees/littlelemon-website/assets/56609281/a690cd38-5f12-4423-ba48-ce2fe709c898)
 
